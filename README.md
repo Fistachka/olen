@@ -40,3 +40,9 @@ Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/274a7ff8-af3c-430f-8d7f-129610090482 =200x200)
 stolbitsa.com/fistachka/snegurochka<br><br>
 
+
+
+![1](https://github.com/user-attachments/assets/92c5eae6-cee4-439e-8131-0e465a5dcb72)
+![2](https://github.com/user-attachments/assets/0eb76860-679f-4aa2-96b5-abb334a75d6f)
+
+
