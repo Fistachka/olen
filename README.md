@@ -3,7 +3,7 @@
 "Лесной олень"  Аида Ведищева 1971г. 1 часть
 ![2](https://github.com/user-attachments/assets/0eb76860-679f-4aa2-96b5-abb334a75d6f)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/oPkhBKp2mTw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/d0nIFq17EJU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vzyCIM9U_Is" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Осенью в дождливый серый день,
@@ -28,7 +28,7 @@ stolbitsa.com/fistachka/snegurochka2<br><br>
 "The Magic Deer" (song) by Aida Vedishcheva. 1 st verse
 ![2](https://github.com/user-attachments/assets/0eb76860-679f-4aa2-96b5-abb334a75d6f)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/eJWpa1ILpGs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/kH3D0z1j3Jw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/-GQ_ENCXogw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Osen'yu v dozhdlivyj seryj den',
